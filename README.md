@@ -2,4 +2,4 @@
 
 Hello
 
-Words have been placed here that were suposed to describe me.
+Words have been placed here that were supposed to describe me.
